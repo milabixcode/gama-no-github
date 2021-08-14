@@ -1,0 +1,1 @@
+O curso é muito bom, mas o Bombardelli é uma bomba: fala rápido demais!! 
